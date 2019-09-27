@@ -29,3 +29,29 @@ supervivencia en entornos difíciles y hostiles.
 
 Tenémos que Reaccionar y comenzar a Accionar o ser DOERs, eliminar el piloto
 automático y tomar acción sobre nosotros.
+
+## 2. Bloqueos inmediatos y cómo superarlos
+
+Los bloqueos impiden pensar de forma clara, por lo que no podremos buscar la solución a un problema o generar una
+idea creativa.
+
+Los bloqueos son causados por el estrés.
+
+El estrés es una respuesta de tu cuerpo a una situación de supervivencia, por lo que provoca una reorganización del 
+uso de los recursos para aumentar nuestras posibilidades de supervivencia en una situación de peligro.
+
+Cuando activamos el modo supervivencia, nuestro organismo dirige toda la sangre y oxigeno a la musculatura de
+brazos y piernas, por lo que al sentir peligro peleamos o huímos.
+
+Con los mamíferos compartimos el sistema límbico y las emociones de apego, empatía y cooperación.
+
+Las cualidades que nos hacen humano como la conciencia, el pensamiento abstracto, el amor incondicional y la
+capacidad de crear, se desarrollan el Neocórtex.
+
+Como el cerebro consume el 25% de la energia, este junto con el sistema dijestivo son los primeros que se apagan
+cuando entramos en el modo supervivencia.
+
+Cuando estamos en una situación de estres es casi imposible usar todo nuestro potencial creativo, por lo que, para
+usarlo debemos tratr de desactivar el modo supervivencia.
+
+El estado antagonista al estrés es la atención y conciencia plena, o mejor conocido como **Mindfulness**.
