@@ -55,3 +55,11 @@ Cuando estamos en una situación de estres es casi imposible usar todo nuestro p
 usarlo debemos tratr de desactivar el modo supervivencia.
 
 El estado antagonista al estrés es la atención y conciencia plena, o mejor conocido como **Mindfulness**.
+
+## 3. Bloqueos temporales y como superarlos.
+
+A veces cosas que nos pasan en nuestra vida personal como laboral nos llegan a desconectar al llegar al punto que nuestro cerebro pone en piloto automático y reaccionado de forma predeterminada a muchos estímulos de nuestro día a día.
+Para salir de un bloqueo  hay que ir mas allá haciendo cosas totalmente nuevas  de los bloqueos inmediatos y temporales se sale tomando conciencia e interviniendo a tiempo para salir de un bloqueo estructural hay que dar un paso al frente y ponerse al centro el miedo de no  saber que no somos lo que queremos ser no hace quedar en una etapa de bloqueo que muchas veces nos impide avanzar hacia delante hay que romper esas cadenas y ser esa persona que tiene esa pasión  esa seguridad  que nos hará sacar todo nuestro potencial escondido.
+
+
+
